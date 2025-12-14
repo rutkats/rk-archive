@@ -17,7 +17,7 @@ The evidence includes official admissions of administrative failure by the state
     *   Official letter from the Human Rights Defender of Armenia confirming the asylum application and the state's admission of "exhausted budget."
 
 *   **[Folder 02: Denial of Service - UNHCR](case-file-armenia-echr-3776025/02-denial-of-service-unhcr/)**
-    *   Email chain with Mission Armenia NGO, the official UNHCR partner, refusing assistqnce and declaring the applicant a "foreign national.",not an asylum seeker.
+    *   Email chain with Mission Armenia NGO, the official UNHCR partner, refusing assistance and declaring the applicant a "foreign national.", not an asylum seeker.
 
 *   **[Folder 03: Medical Evidence](case-file-armenia-echr-3776025/03-medical-evidence/)**
     *   SMS threats from the Republican Medical Center demanding payment for illegal emergency care.
